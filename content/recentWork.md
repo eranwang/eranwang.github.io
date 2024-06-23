@@ -1,0 +1,5 @@
+- Social cohesion and economic inequality among older people [Working paper]
+- Relationships between local governments and the media during public crises [Working paper]
+- Influence of cover characters and female advertising on consumption [Working paper]
+- Gender image and female empowerment in magazine cover [Working paper]
+- The gender temperaments of the protagonists in Chinese delayed film and television dramas [Working paper]
