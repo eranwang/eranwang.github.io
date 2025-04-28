@@ -1,4 +1,5 @@
 - Living neither with the father nor the mother after parental Separation: evidence on frequency, patterns and determinants using Belgian population data, Christine Schnor and Yiran Wang, 22nd Conference of the European Divorce Network. 2024
+- Coresidence Dynamics Exploring the Link Between Old Adult’s Mental Health and Family Presence in Modern China, Yiran WANG, Master thesis, Université Paris-Saclay, 2024
 - Social cohesion and economic inequality among older people [Working paper]
 - Relationships between local governments and the media during public crises [Working paper]
 - Influence of cover characters and female advertising on consumption [Working paper]
